@@ -26,3 +26,7 @@ You bear the full responsibility of your actions and acknowledge that this softw
 This software's main purpose is NOT to be used maliciously, or on any system that you do not own, or have the right to use.
 
 By using this software, you automatically agree to the above.
+
+
+Join Our Telegram Project
+https://t.me/HEXODevRealOfficialChannel
